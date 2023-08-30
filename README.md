@@ -1,2 +1,2 @@
-# Our Organization Website
-Welcome To Our Organization
+# Welcome To Our Organization
+Want to do something big with us? Join us!
